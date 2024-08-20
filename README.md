@@ -2,7 +2,7 @@
  
  - Me chamo Sarah  ☾✨
  - Tenho 15 anos
- - Estudo no 1° ano do ensino médio, No calegio Jose de Alencar
+ - Estudo no 1° ano do ensino médio, No colégio Jose de Alencar
  - Utilizo esse perfil para compartilhar meus projetos
  - 📫 sarah.zielinski@escola.pr.gov.br
 
