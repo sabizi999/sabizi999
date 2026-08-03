@@ -1,8 +1,8 @@
 - ### Olá, seja bem vindo ao meu perfil 👋
  
  - Me chamo Sarah  ☾✨
- - Tenho 15 anos
- - Estudo no 1° ano do ensino médio, No colégio Jose de Alencar
+ - Tenho 17 anos
+ - Estudo no 3° ano do ensino médio, No colégio Jose de Alencar
  - Utilizo esse perfil para compartilhar meus projetos
  - ### Você pode entrar em contato comigo :e-mail
 
